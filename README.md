@@ -1,1 +1,0 @@
-# adrenlosh.github.io
